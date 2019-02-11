@@ -1,1 +1,0 @@
-# samiby.github.io
